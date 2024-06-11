@@ -1,1 +1,1 @@
-# Save teh SEA
+# Save the SEA
